@@ -15,7 +15,7 @@
 - 😄 Pronouns: Out-of-the-box Thinker
 
 ## ⚡ Fun facts:
-* I am an ameteur screenwriter
+* I am an amateur screenwriter
 
 ## What's Better
 * Star Trek > Star Wars
